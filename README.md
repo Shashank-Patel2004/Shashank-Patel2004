@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shashank-Patel2004
 - 👀 I’m interested in Anime
-- 🌱 I’m currently a college student
+- 🌱 I’m currently a Fresher
 - 📫 How to reach me theyellowflash2020@gmail.com
 
 <!---
